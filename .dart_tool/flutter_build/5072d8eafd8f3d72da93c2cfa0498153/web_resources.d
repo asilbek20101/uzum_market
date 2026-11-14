@@ -1,0 +1,1 @@
+:  C:\\Users\\User\\Documents\\Codex\\2026-11-10\\tel\\uzum_market\\web\\index.html
